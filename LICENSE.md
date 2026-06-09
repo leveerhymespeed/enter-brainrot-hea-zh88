@@ -1,4 +1,4 @@
-
+enter brainrot heads Script professional is the best enter brainrot heads Script, featuring instant win and auto-collect. Safe and powerful for all
 
 
 
